@@ -1,6 +1,8 @@
 ### Hi, I'm Javi 👋
 
 🏗️ Cofounder @ [Tieki YC W25](https://tiekiapp.com/en)<br>
+
+
 👨🏼‍💻 (prev)Founding Eng. @ [Stack AI YC W23](https://www.stack-ai.com/)<br>
 🖥️ [My website](https://www.javisf.com) <br>
 👨🏼‍💼 [LinkedIn](https://www.linkedin.com/in/sanchezfdezjavier/) <br>
