@@ -7,5 +7,4 @@
 
 
 👨🏼‍💻 (prev)Founding Eng. @ [Stack AI YC W23](https://www.stack-ai.com/)<br>
-🖥️ [My website](https://www.javisf.com) <br>
 
