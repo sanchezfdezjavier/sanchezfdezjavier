@@ -1,10 +1,9 @@
-### Hi, I'm Javi 👋
+Cofounder @ [Rebolt](https://tiekiapp.com/en) YC W25<br>
+Prev. Founding Eng. @ [Stack AI](https://www.stack.ai) YC W23 (acquired)<br>
 
-🏗️ Cofounder @ [Rebolt.ai YC W25](https://tiekiapp.com/en)<br>
-
-👨🏼‍💼 [LinkedIn](https://www.linkedin.com/in/sanchezfdezjavier/) <br>
-💬 [Twitter](https://x.com/jvrsanch) <br>
+[LinkedIn](https://www.linkedin.com/in/sanchezfdezjavier/) <br>
+[Twitter](https://x.com/jvrsanch) <br>
 
 
-👨🏼‍💻 (prev)Founding Eng. @ [Stack AI YC W23](https://www.stack-ai.com/)<br>
+
 
